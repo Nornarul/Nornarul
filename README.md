@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nornarul
+- 👀 I’m interested in ...I would like to design a simple 2D game.
+- 🌱 I’m currently learning ...Everything, i still have much to learn but im doing my best.
+- 💞️ I’m looking to collaborate on ...Everything and anything i am open to collabs and suggestions.
+- 📫 How to reach me ...Discord @sunsetstrangler#0819
